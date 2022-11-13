@@ -1,4 +1,4 @@
- 👋 Hi, I’m MARINA HUDKOVA /@Marina-tech-dot
+ 👋 Hi, I’m MARINA HUDKOVA
  
  
  
